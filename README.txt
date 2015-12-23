@@ -1,1 +1,1 @@
-这是热血团队的项目计划书
+The "Intelligent Light.zip" contains our team's project plan "Intelligent Light.xlsx".
